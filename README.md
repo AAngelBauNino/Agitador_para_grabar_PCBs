@@ -4,6 +4,6 @@
 Cualquier aclaracion, comenta.
 Espero que les sirva ;).
 
-Instagram: angelbnshark
-Twitter: AngelBNShark
-Facebook: AngelbnShark - MicroBytes
+Instagram: aangelbaunino
+Twitter: aangelbaunino
+Facebook: aangelbaunino
